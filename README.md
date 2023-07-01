@@ -16,3 +16,4 @@ bioscience
 ・そもそもバイオが女子の絶対数多そう
 ・情報領域！(知らんけど)
 ・領域関係なく頑張って研究しているNaist生は美しい！（知らんけど）
+. Anyone with a beautiful soul (kind and helpful) is beautiful regardless of the field :D
